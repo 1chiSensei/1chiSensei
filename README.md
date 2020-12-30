@@ -1,15 +1,16 @@
 <h1 align="center">Hi 👋, I'm 1chiSensei</h1>
 <h3 align="center">A weeb and a developer</h3>
 
+<br />
 <p align="center">
-  Jugem-Jugem Shit-Tossing The Life Of Shin-chan’s Two-Day-Old Underwear
+  <i>" Jugem-Jugem Shit-Tossing The Life Of Shin-chan’s Two-Day-Old Underwear
   Balmung Fezalion Isaac Schneider 1/3True Love 2/3 Hangnail Anxiety
   Betrayal Knows My Name Or Does It Really Ignore Calls Squid Dogfish
   Halibut Trout-Cod Dogfish This Is a Different Dogfish, I’m Talking About The Dogfish Shark
   Kaluga Angler Ray 
   Yuuteimiyaoukimukou Pepepepepepepepepepepepe 
   All’s Well That Ends Well 
-  Runny Diarrhea
+  Runny Diarrhea "</i>
 </p>
 
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=1chisensei&label=Profile%20views&color=0e75b6&style=flat" alt="1chisensei" /> </p>
