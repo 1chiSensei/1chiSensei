@@ -3,14 +3,14 @@
 
 <br />
 <p align="center">
-  <i>" Jugem-Jugem Shit-Tossing The Life Of Shin-chan’s Two-Day-Old Underwear
-  Balmung Fezalion Isaac Schneider 1/3True Love 2/3 Hangnail Anxiety
+  <a href="https://www.youtube.com/watch?v=G_K9bn60A4g"><i>" Jugem-Jugem Shit-Tossing The Life Of Shin-chan’s Two-Day-Old Underwear
+  Balmung Fezalion Isaac Schneider 1/3 True Love 2/3 Hangnail Anxiety
   Betrayal Knows My Name Or Does It Really Ignore Calls Squid Dogfish
   Halibut Trout-Cod Dogfish This Is a Different Dogfish, I’m Talking About The Dogfish Shark
   Kaluga Angler Ray 
   Yuuteimiyaoukimukou Pepepepepepepepepepepepe 
   All’s Well That Ends Well 
-  Runny Diarrhea "</i>
+  Runny Diarrhea "</i></a>
 </p>
 
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=1chisensei&label=Profile%20views&color=0e75b6&style=flat" alt="1chisensei" /> </p>
