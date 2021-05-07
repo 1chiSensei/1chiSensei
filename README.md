@@ -7,7 +7,7 @@
 
 - 💬 Ask me about **Typescript, Node.js, CSS**
 
-- 📫 How to reach me **mail@1chi.tk**
+- 📫 How to reach me **mail@tomio.codes**
 
 - ⚡ Fun fact **I like anime**
 
